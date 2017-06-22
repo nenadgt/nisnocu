@@ -1,5 +1,5 @@
-# Nis nocu
+# Niš noću
 
-Nocni zivot u Nisu
+Noćni život u Nišu
 
 Uskoro u procesu
